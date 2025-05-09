@@ -1,0 +1,1 @@
+A portfolio website is a personal online platform used to showcase your work, skills, projects, and achievements. It's commonly used by professionals like designers, developers, writers, and photographers to present their expertise, attract clients or employers, and build an online presence.
